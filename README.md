@@ -1,0 +1,2 @@
+# myideas
+what is lean?? 
